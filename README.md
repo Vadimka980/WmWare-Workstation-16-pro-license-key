@@ -1,2 +1,1 @@
-# WmWare-Workstation-16-pro-license-key
-Здесь хранятся ключи для WmWare Workstation 16 pro
+Привет тут ты найдёшь ключи для Wmware Workstation 16 pro их 13 штук на всякий случай!
